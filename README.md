@@ -1,4 +1,4 @@
-How We Give An Online Seminar Every Hour Of The Day On Every Single Day Of The Year
+How I Give An Online Seminar Every Hour Of The Day On Every Single Day Of The Year
 
 Someone in South Korea Viewing The Seminar
 <img src="https://github.com/SamPutnam/Index-2018/blob/master/Screen%20Shot%202018-10-08%20at%202.51.47%20PM.png" width=900>
